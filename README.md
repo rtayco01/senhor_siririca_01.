@@ -1,2 +1,2 @@
 # senhor_siririca_01.
-lula baniu a siririca kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+preguiça
